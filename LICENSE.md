@@ -1,4 +1,4 @@
-#  
+#  sol's rng Script vip offers the most advanced sol's rng Script, with custom skins and auto-collect. Perfect for dominating any match.
 
 
 
